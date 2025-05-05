@@ -10,7 +10,7 @@ un asesino enmascarado,</br>
 la ira de un soldado,</br>
 un niño atemorizado.</br>
 </br>
-Te apunté con mi harma varias veces,</br>
+Te apunté con mi arma varias veces,</br>
 todas ellas he disparado,</br>
 falle las balas,</br>
 y me las guarde en un tarro.</br>
